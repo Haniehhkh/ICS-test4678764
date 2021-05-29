@@ -3,3 +3,4 @@
 Hanieh is feeling excited
 Kurtis is feeling like singing
 Austin is stoked!
+Robert is proud of everyone here.
